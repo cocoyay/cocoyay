@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cocoyay
-- 👀 I’m interested in writing, film and being outdoors.
-- 🌱 I’m currently working as the Head of Content and Communications at DoiT International.
+- 🌱 I’m an advocate for birth health, obstetric justice and climate action, usually found in the sea.
+- 🎨 I’m a professional content and creative lead, currently Head of Content and Communications at DoiT International.
 - 📫 You can find me on instagram at colleen_irl, on twitter at cocoyay or on linkedin at colleenwm.
 
 <!---
